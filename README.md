@@ -1,1 +1,1 @@
-# Swear-Rough-Words-Nepali
+# Swear-Rough-Slang-Words-Nepali
